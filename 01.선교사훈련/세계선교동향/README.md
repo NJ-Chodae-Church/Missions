@@ -37,8 +37,8 @@
 ### 6. 미국 기독교 현황
 ![08](08.jpg)
 
-### 7. 간단한 해석과 적용
-**지상 대명령** (The Great Commission) 에서 **선교 대계획** (The Great Vision) 으로
+### 7. 해석과 적용
+**지상 대명령** (The Great Commission) 을 실현하는 **선교 대계획** (The Great Vision) 수립
 > "세계 기독교의 미래는 아프리카에 있다" - 필립 젠킨스(Philip Jenkins)
 
 > "1세기부터 지금까지 세계 선교의 중심에는, 지역 교회(local churches) 와 선교 단체(mission agencies)의 협력이 있어왔다." - Yaw Perbi & Sam Ngugi
